@@ -5,11 +5,11 @@
 ![Attachment.png](Attachments/A4BCE487-24F2-4055-84AA-015B0AABCC4F.png)  
  👨🏻 パパ (ガイド＆ドライバー)  
 ![Attachment.png](Attachments/A0B4A96F-9DCB-4790-9FC5-51D645F6D453.png)  
- 👩🏻 ママ (盛り上げマスター)  
+ 👩🏻 ママ (衛生管理担当)  
 ![Attachment.png](Attachments/1CAB75AA-BC79-4653-AF8F-F96E1DD542D9.png)  
- 👦🏻 すーちゃん** 6**歳 (賑やかし担当)  
+ 👦🏻 長男 6歳 (バースデーボーイ)  
 ![Attachment.png](Attachments/EDDD972D-2CB9-460A-B566-960B55A4E8D4.png)  
- 👶🏻 ゆづちゃん** 3**歳 (赤ちゃん)  
+ 👶🏻 ゆづちゃん 3歳 (主役は譲らない)  
 🚄＆✈️ Day 1：11/19 (Thu) 乗り物大冒険！  
 ![Attachment.png](Attachments/D81EC271-D2CB-49C5-8E2D-71BDE1F05124.png)  
  **16:03** 那須塩原駅 発 🚄 (なすの278号)  
@@ -97,18 +97,12 @@
  **10:20** 那覇空港 発 ✈️ (JAL902便 / Class Jでひろびろ～♪)  
 ![Attachment.png](Attachments/2C2FB374-66D4-4E8F-BD2A-37A781ED7827.png)  
  **12:35** 羽田空港 着 🏠  
-🎒 もちものリスト  
-海・遊び用  
-![Attachment.png](Attachments/9CDE802A-71E8-46D2-BB8F-FF850458E162.png)  
- [ ] 水着・日焼け止め  
-![Attachment.png](Attachments/B1E67E72-23FC-4FD2-94C2-0E8FCF354099.png)  
- [ ] すーちゃんのおもちゃ 🦖  
-![Attachment.png](Attachments/43FF665B-4893-4A95-847F-E137ABC9E601.png)  
- [ ] ゆづちゃん赤ちゃんグッズ 🍼  
+🎒 もちものリスト 
+★ 旅のおとも ★
+![Attachment.png](Attachments/48F1960F-3A55-4446-817C-2DB0F4763756.png)  
+ [ ] カメラ ＆ 笑顔 😊
 ★ 結婚式用 ★  
 ![Attachment.png](Attachments/237A227C-BCB8-4594-B9CC-6A27B7703A99.png)  
  [ ] ご祝儀・ふくさ  
 ![Attachment.png](Attachments/13545529-F64C-4C5C-8329-DEF0CF895009.png)  
  [ ] おめかし服・靴（家族全員分！）  
-![Attachment.png](Attachments/48F1960F-3A55-4446-817C-2DB0F4763756.png)  
- [ ] カメラ ＆ 笑顔 😊
